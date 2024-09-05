@@ -4,3 +4,5 @@ alhamdulillah
 SubhanAllah
 <br>
 AllahuAkbar
+<br>
+la illah ha ill lallah
